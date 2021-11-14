@@ -8,3 +8,9 @@ Let's list most popular things about women:
 2. They are beatiful
 3. They are stupid
 4. And they are sexy
+
+---
+
+## Why you continously stop
+Let's think about way we use for stop ourselves every time when we have already win
+
